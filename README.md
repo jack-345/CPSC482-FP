@@ -1,2 +1,2 @@
 # recording link
-* (placeholder)
+* https://youtu.be/oAJdrFGAYv8 
